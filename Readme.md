@@ -1,0 +1,1 @@
+I'm gonna make a ai assisant for your speacking skill which test how do you talk and how you can improve your speacking skill
