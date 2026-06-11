@@ -1,7 +1,2 @@
 SPEACK_TO_GROW
 
-
-
-
-
-
